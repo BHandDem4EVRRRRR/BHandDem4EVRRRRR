@@ -1,7 +1,7 @@
 ### HI!! IM DEMENCIA! i dunno how 2 use github but im gonna dump a ton of stuff i found supery dupery cool.. THIS INCLUDES ME BTW. BTW SIGN OUR STRAWPAGE AND ATA!! NOWWWW!!!
 ###### PROSHIPPERS & ANYTHING UNDER THAT UMBRELLA DNI I WILL EAT YOU IF YOU GET TOO CLOSE
 ### ⚠️ POTENTIAL FLASHING LIGHTS AND EYESTRAIN AHEAD. MY COLLECTION IS A WIP ⚠️
-![DEMENCIA](https://media1.tenor.com/m/DIrZy8hJvuwAAAAd/morder-demencia.gif)
+![DEMENCIA](https://media1.tenor.com/m/R8Zo351pas4AAAAC/demencia-villainous.gif)
 ### COOL GRAPHICS
 ![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery251/a666d55f.gif?v=3fc8f5cd)
 ![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery81/ca4a4a67.gif?v=3fc8f5cd)
