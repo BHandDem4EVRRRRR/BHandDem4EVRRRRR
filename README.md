@@ -2,7 +2,6 @@
 ###### PROSHIPPERS & ANYTHING UNDER THAT UMBRELLA DNI I WILL EAT YOU IF YOU GET TOO CLOSE
 ### ⚠️ POTENTIAL FLASHING LIGHTS AND EYESTRAIN AHEAD. MY COLLECTION IS A WIP ⚠️
 ![DEMENCIA](https://media1.tenor.com/m/6bncS0kkSPcAAAAC/villainous-demencia.gif)
-![DEMENCIA](https://media1.tenor.com/m/NlvzYXt7xTAAAAAC/cartoonnetwork-villanos-dem.gif)
 ### COOL GRAPHICS
 ![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery251/a666d55f.gif?v=3fc8f5cd)
 ![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery81/ca4a4a67.gif?v=3fc8f5cd)
