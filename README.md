@@ -1,16 +1,45 @@
-## Hi there 👋
-
-<!--
-**BHandDem4EVRRRRR/BHandDem4EVRRRRR** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### HI!! IM DEMENCIA! i dunno how 2 use github but im gonna dump a ton of stuff i found supery dupery cool.. THIS INCLUDES ME BTW. BTW SIGN OUR STRAWPAGE AND ATA!! NOWWWW!!!
+###### PROSHIPPERS & ANYTHING UNDER THAT UMBRELLA DNI I WILL EAT YOU IF YOU GET TOO CLOSE
+### ⚠️ POTENTIAL FLASHING LIGHTS AND EYESTRAIN AHEAD. MY COLLECTION IS A WIP ⚠️
+![DEMENCIA](https://media1.tenor.com/m/6bncS0kkSPcAAAAC/villainous-demencia.gif)
+![DEMENCIA](https://media1.tenor.com/m/NlvzYXt7xTAAAAAC/cartoonnetwork-villanos-dem.gif)
+### COOL GRAPHICS
+![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery251/a666d55f.gif?v=3fc8f5cd)
+![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery81/ca4a4a67.gif?v=3fc8f5cd)
+![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery117/1786bf45.png?v=3fc8f5cd)
+![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery84/03409036.gif?v=3fc8f5cd)
+![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery78/b9d0df42.gif?v=3fc8f5cd)
+![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery79/27b51df8.gif?v=3fc8f5cd)
+![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery83/fce7d473.gif?v=3fc8f5cd)
+![GRAPHIC](https://gifcity.carrd.co/assets/images/gallery83/5ad7cdf4.gif?v=3fc8f5cd)
+### STAMPSSSSS
+![STAMP](https://gifcity.carrd.co/assets/images/gallery131/80340ca5.png?v=3fc8f5cd) 
+![STAMP](https://gifcity.carrd.co/assets/images/gallery131/84edc252.gif?v=3fc8f5cd) 
+![STAMP](https://gifcity.carrd.co/assets/images/gallery131/72d7c43f.png?v=3fc8f5cd) 
+![STAMP](https://gifcity.carrd.co/assets/images/gallery131/ff789379.jpg?v=3fc8f5cd) 
+![STAMP](https://gifcity.carrd.co/assets/images/gallery131/7f65ed4d.png?v=3fc8f5cd)
+![STAMP](https://gifcity.carrd.co/assets/images/gallery59/6bc83f44.png?v=3fc8f5cd) 
+![STAMP](https://gifcity.carrd.co/assets/images/gallery59/6ab8be23.png?v=3fc8f5cd)
+![STAMP](https://gifcity.carrd.co/assets/images/gallery61/b683d51c.gif?v=3fc8f5cd) 
+![STAMP](https://gifcity.carrd.co/assets/images/gallery60/d0c59863.png?v=3fc8f5cd) 
+![STAMP](https://gifcity.carrd.co/assets/images/gallery58/412b8908.png?v=3fc8f5cd)
+### THESE THINGS I FORGOT THEIR NAMES
+![ICON](https://gifcity.carrd.co/assets/images/gallery267/6fef111b.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery267/2e446af8.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery267/3cb9e257.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery267/f6d35b58.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery01/71a50ca4.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery145/408df478.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery398/503b66a4.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery07/38e9e70e.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery90/408d6fcd.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery148/dfe627cb.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery10/ffda719d.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery12/a3a140ab.gif?v=3fc8f5cd)
+![ICON](https://gifcity.carrd.co/assets/images/gallery03/dce1c73b.gif?v=3fc8f5cd)
+### BLINKIES
+![BLINKIES](https://gifcity.carrd.co/assets/images/gallery17/e24a02cc.gif?v=3fc8f5cd)
+![BLINKIES](https://gifcity.carrd.co/assets/images/gallery17/0c259fdc.gif?v=3fc8f5cd)
+![BLINKIES](https://gifcity.carrd.co/assets/images/gallery16/c26aaf6c.gif?v=3fc8f5cd)
+![BLINKIES](https://gifcity.carrd.co/assets/images/gallery17/d7b4a95c.gif?v=3fc8f5cd)
+![BLINKIES](https://gifcity.carrd.co/assets/images/gallery17/02c87705.gif?v=3fc8f5cd)
