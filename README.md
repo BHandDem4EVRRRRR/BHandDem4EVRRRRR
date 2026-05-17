@@ -1,4 +1,4 @@
-### HI!! IM DEMENCIA! i dunno how 2 use github but im gonna dump a ton of stuff i found supery dupery cool.. THIS INCLUDES ME BTW. BTW SIGN OUR STRAWPAGE AND ATA!! NOWWWW!!!
+### HI!! IM DEMENCIA! i dunno how 2 use github but im gonna dump a ton of stuff i found supery dupery cool.. THIS INCLUDES ME. BTW SIGN OUR STRAWPAGE AND ATA!! NOWWWW!!!
 ###### PROSHIPPERS & ANYTHING UNDER THAT UMBRELLA DNI I WILL EAT YOU IF YOU GET TOO CLOSE
 ### ⚠️ POTENTIAL FLASHING LIGHTS AND EYESTRAIN AHEAD. MY COLLECTION IS A WIP ⚠️
 ![DEMENCIA](https://media1.tenor.com/m/NlvzYXt7xTAAAAAd/cartoonnetwork-villanos-dem.gif)
